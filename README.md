@@ -1,2 +1,2 @@
-# Ori Bits Technologies ... We are coming soon...
+# Ori Bits LLC
 
